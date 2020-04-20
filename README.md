@@ -18,3 +18,4 @@ sorry for the hold up
 ![lusciousnet_lusciousnet_1-25_141991249](https://user-images.githubusercontent.com/63864204/79697800-c9099900-8252-11ea-866c-6ab481432445.png)
 ![th](https://user-images.githubusercontent.com/63864204/79697802-c9a22f80-8252-11ea-9cc5-1a576b4dda0e.jpg)
 
+Thats all for now, folks!
