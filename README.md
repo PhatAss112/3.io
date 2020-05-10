@@ -36,6 +36,9 @@ sorry for the hold up
 ![801F8FF8-815B-4681-88C5-2F89C3ADB64B](https://user-images.githubusercontent.com/63864204/79774551-ee54e080-8300-11ea-9f60-14b838c36e98.jpeg)
 ![66553DBB-7115-4CE5-8BD1-AF3132A8A134](https://user-images.githubusercontent.com/63864204/79774552-ee54e080-8300-11ea-8776-d681ca86d4af.jpeg)
 ![F36171C7-4AD0-45FF-B62C-FB7BE1578208](https://user-images.githubusercontent.com/63864204/79774553-ee54e080-8300-11ea-9370-79a325b23ec0.png)
+![1522](https://user-images.githubusercontent.com/63864204/81508669-6b0d2600-92d3-11ea-8370-259fbb741436.jpg)
+![1026](https://user-images.githubusercontent.com/63864204/81508671-6ba5bc80-92d3-11ea-92a8-b000fd5d2324.jpg)
+![1524](https://user-images.githubusercontent.com/63864204/81508673-6c3e5300-92d3-11ea-8931-7a81a1e2597f.jpg)
 
 
 Thats all for now, folks!
