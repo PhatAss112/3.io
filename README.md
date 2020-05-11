@@ -39,6 +39,14 @@ sorry for the hold up
 ![1522](https://user-images.githubusercontent.com/63864204/81508669-6b0d2600-92d3-11ea-8370-259fbb741436.jpg)
 ![1026](https://user-images.githubusercontent.com/63864204/81508671-6ba5bc80-92d3-11ea-92a8-b000fd5d2324.jpg)
 ![1524](https://user-images.githubusercontent.com/63864204/81508673-6c3e5300-92d3-11ea-8931-7a81a1e2597f.jpg)
+![0B5C1393-F34E-4821-9309-A284BB794F58](https://user-images.githubusercontent.com/63864204/81517081-c0632a80-9307-11ea-9920-59bc28c4872b.jpeg)
+![9D54852F-51CC-4861-8C05-EC302C1F4C35](https://user-images.githubusercontent.com/63864204/81517082-c0632a80-9307-11ea-82c1-06902d2da0b6.jpeg)
+![149B918A-07E6-4069-AB90-E3E0484F3344](https://user-images.githubusercontent.com/63864204/81517084-c0fbc100-9307-11ea-99fd-b235a05c7831.png)
+![9972C609-04D5-4E22-9EAA-B9A175772F92](https://user-images.githubusercontent.com/63864204/81517085-c0fbc100-9307-11ea-85a8-d69c307c00cb.jpeg)
+![D24C0656-4E93-4C01-A365-E0213145E8C9](https://user-images.githubusercontent.com/63864204/81517088-c1945780-9307-11ea-9fa0-15df1b71f4e8.jpeg)
+![F1D4AB18-71AB-4CEE-B1C3-E2FD0B814231](https://user-images.githubusercontent.com/63864204/81517090-c1945780-9307-11ea-8617-c3e8555bd6ba.jpeg)
+![FE8B2739-7D7C-4942-BB60-DC02445E8A84](https://user-images.githubusercontent.com/63864204/81517091-c1945780-9307-11ea-8b23-94c166cc5893.jpeg)
+
 
 
 Thats all for now, folks!
